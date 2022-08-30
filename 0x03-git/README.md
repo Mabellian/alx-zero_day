@@ -1,1 +1,1 @@
-Check out my code
+My coding journey
